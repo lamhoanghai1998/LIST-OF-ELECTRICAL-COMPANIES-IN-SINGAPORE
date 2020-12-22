@@ -1,4 +1,2 @@
 # LIST-OF-ELECTRICAL-COMPANIES-IN-SINGAPORE
 The 10 best ELECTRICAL company in SINGAPORE
-
-Tanesei Trading Pte. Ltd. was established in the year 2002. The company is a leading wholesaler in Japanese food, confectionery and sake products. With a team of professional sales and marketing staff, we are the main supplier to some of the top supermarkets, restaurants and hotels here in Singapore. We recognize the uprising Japanese trend in Singapore and we believe in the continuous improvement in the range of our products. Hence, our purchasing team works very closely with our Japanese counterparts to ensure that the latest products in Japan can be brought to our customers. Many companies choose our company as the main supplier as we strive to offer a complete range of Japanese food products at reasonable prices.
